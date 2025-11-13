@@ -2,9 +2,9 @@
 
 *ANO & CO ; F: iTrapped (MM12) ~ COF: Ellernate (MM12)*
 
-**F:** _Shut. up. El._
+**F:** _... Hope they're alright._
 
-**COF:** _Ohohoho~ iTrapped's playing a gaammmeeeee..~_
+**COF:** _Relaaaaaaaaaaaax, T. They're fine._
 
 ❥﹐☆
 
