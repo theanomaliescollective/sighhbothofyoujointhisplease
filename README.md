@@ -2,17 +2,17 @@
 
 *ANO & CO ; F: iTrapped (MM12) ~ COF: N/A*
 
-**F:**
+**F:** _There, I made it all... fancy._
 
-**COF:**
+**COF:** _ _
 
 ❥﹐☆
 
 *DANI & CO ; F: N/A  ~ COF: N/A*
 
-**F:**
+**F:** _ _
 
-**COF:**
+**COF:** _ _
 
 ╔════♡════╗
 
@@ -20,8 +20,8 @@
 
 *BAGEL & CO ; F: N/A ~ COF: N/A*
 
-**F:**
+**F:** _ _
 
-**COF:**
+**COF:** _ _
 
 ︵‿︵‿୨ᰔ୧‿︵‿︵
