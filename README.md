@@ -2,7 +2,7 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: 007n7(Ms3, in a strap-jacket)*
 
-*(He's actively refreshing every second, best to do the same -m0rgan)*
+*(AFK.)*
 
 **F:** _CK, you doin' okay? You're aware I won't let him talk to you, yes?_
 
