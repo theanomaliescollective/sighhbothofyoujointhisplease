@@ -2,11 +2,11 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: 007n7(Ms3, in a strap-jacket)*
 
-*(AFK.)*
+*(Back.)*
 
-**F:** _CK, you doin' okay? You're aware I won't let him talk to you, yes?_
+**F:** _C00lieo?_
 
-**F2:** _As long as you slept.._
+**F2:** _..._
 
 
 
