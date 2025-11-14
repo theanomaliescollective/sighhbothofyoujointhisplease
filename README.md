@@ -2,8 +2,6 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: 007n7(Ms3, in a strap-jacket)*
 
-*(Back.)*
-
 **F:** _...Kid?_ <img width="30" height="30" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/71eed55a-924a-47ee-ad0b-6827a826de5f" />
 
 **F2:** _..._
