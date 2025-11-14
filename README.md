@@ -10,7 +10,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:**
+**F:** (Afk, chores)
 
 **COF:** _ _
 
