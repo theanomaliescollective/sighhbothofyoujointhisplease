@@ -4,9 +4,9 @@
 
 *(He's actively refreshing every second, best to do the same -m0rgan)*
 
-**F:** _How'd you sleep?_
+**F:** _CK, you doin' okay? You're aware I won't let him talk to you, yes?_
 
-**COF:** _N/A, unable to type_
+**F2:** _How'd you sleep, Dani?_
 
 
 
