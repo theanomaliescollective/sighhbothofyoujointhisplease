@@ -22,9 +22,9 @@ status
 
 ╚════♡════╝
 
-*BAGEL & CO ; F: N/A ~ COF: N/A*
+*BAGEL & CO ; F: c00lkidd ~ COF: K-NINE*
 
-**F:** _ _
+**F:** _i'm?? definitely questioning it??? also hi we're at the library right now_
 
 **COF:** _ _
 
