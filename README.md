@@ -2,7 +2,9 @@
 
 *ANO & CO ; F: 007n7(Ms3,heavy monitoring) - COF: Brighteyes(watching n7)*
 
-**F:** **Uh.huh.**
+**F:** **...**
+
+**COF:** _Hi, Dani!! :D_
 
 ❥﹐☆
 
