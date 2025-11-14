@@ -24,7 +24,7 @@
 
 *BAGEL & CO ; F: c00lkidd ~ COF: N/A*
 
-**F:** _. . . . . 0h._
+**F:** _. . ._
 
 **COF:** _ _
 
