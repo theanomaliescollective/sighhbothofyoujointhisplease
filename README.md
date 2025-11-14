@@ -8,7 +8,8 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** i mean its either that, they're processing things, or they're trying to avoid using the website rn
+**F:** oh
+hi brighteyes :D
 
 **COF:** _ _
 
