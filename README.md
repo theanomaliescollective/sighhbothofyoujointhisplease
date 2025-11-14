@@ -4,7 +4,7 @@
 
 status
 
-**F:** _Hey, c00lieo. Also, yeah, it's the bad n7. I got somethin' for Dani since they're having trouble with their system, so I'll just put it at the very bottom. It's for personal usage, not directly for here, D, unless you want it to be._
+**F:** _Yeah, not sure why he's here..._
 
 **COF:** _N/A, unable to type_
 
