@@ -2,9 +2,9 @@
 
 *ANO & CO ; F: John Doe.{MS4} ~ COF: 007n7(Ms3, in a strap-jacket)*
 
-**F:** _...Kid?_ <img width="30" height="30" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/71eed55a-924a-47ee-ad0b-6827a826de5f" />
+**F:** _...Kid, please_ <img width="30" height="30" alt="a3aa402aa3977d31c35abaad0be1989f" src="https://github.com/user-attachments/assets/666333d9-d9cd-40d4-888b-5eab23304fd0" />
 
-**F2:** _..._
+**F2:** _He's not allowed to talk, he's strap-jacketed.._
 
 
 
