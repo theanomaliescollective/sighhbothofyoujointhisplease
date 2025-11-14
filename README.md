@@ -4,7 +4,7 @@
 
 **F:** **...**
 
-**COF:** _Doin' civics work, be back soon! Also monitoring n7.._
+**COF:** _Computer Science.._
 
 ❥﹐☆
 
