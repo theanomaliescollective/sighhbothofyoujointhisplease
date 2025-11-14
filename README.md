@@ -12,7 +12,7 @@
 
 *DANI & CO ; F: Dani ~ COF: N/A*
 
-**F:** if I ever go too quiet, y'all read my status, pls
+**F:** ...I really am sorry, reaps, for how quiet I am. also, yall have any ideas for it or nah?
 
 **COF:** _ _
 
