@@ -18,9 +18,9 @@
 
 ╚════♡════╝
 
-*BAGEL & CO ; F: c00lkidd ~ COF: N/A*
+*BAGEL & CO ; F: c00lkidd ~ COF: KHVRON*
 
-**F:** _. . ._
+**F:** _bbuh_
 
 **COF:** _ _
 
