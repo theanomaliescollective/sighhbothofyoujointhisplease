@@ -18,9 +18,9 @@
 
 ╚════♡════╝
 
-*BAGEL & CO ; F: c00lkidd ~ COF: KHVRON*
+*BAGEL & CO ; F: c00lkidd {Off-Tab, Playing Forsaken} ~ COF: KHVRON*
 
-**F:** _bbuh_
+**F:** _:3_
 
 **COF:** _ _
 
