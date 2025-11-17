@@ -1,10 +1,10 @@
 ︵‿︵‿୨ᰔ୧‿︵‿︵
 
-*ANO & CO ; F: 007n7(Ms3,heavy monitoring) - COF: Brighteyes(watching n7)*
+*ANO & CO ; F: 007n7(Ms4,tired) - COF: N/A*
 
-**F:** **...**
+**F:** **exhausted**
 
-**COF:** _Computer Science.._
+**COF:**_N/A_
 
 ❥﹐☆
 
